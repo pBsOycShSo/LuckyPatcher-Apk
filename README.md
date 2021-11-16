@@ -4,7 +4,7 @@
 Easy Game 💸💰 hack APK installation
 
 
-How to download and installing :- 
+```How to download and installing :- ```
 
 
 
